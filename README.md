@@ -1,1 +1,1 @@
-# CODE STUDYING PALS AT DOS RIOS, HUIXQUILUCAN, MEXICO, GM!!
+# Study pals at Dos Rios 🤓
