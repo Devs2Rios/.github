@@ -1,1 +1,1 @@
-# Study pals at Dos Rios 🤓
+# Study Pals at Dos Ríos 🤓
